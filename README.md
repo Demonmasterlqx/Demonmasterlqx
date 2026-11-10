@@ -1,4 +1,4 @@
-## Hi there 👋 Demonmasterlqx
+## Hi there 👋 Demonmasterlqx (Qixuan Li)
 
 ## About Me
 
